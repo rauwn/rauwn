@@ -1,1 +1,1 @@
-## 👋 Hi, I’m @rauwn
+[![👋🏻 hi, i'm @rauwn](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=%F0%9F%91%8B%F0%9F%8F%BB+hi%2C+i'm+%40rauwn)](https://git.io/typing-svg)
